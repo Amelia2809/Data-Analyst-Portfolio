@@ -7,6 +7,9 @@ I have experience as Data Analyst Internship for 1 years at PT. Pakuwon Jati Tbk
 I want to expand my experience in Data Analysis for more especially about Digital Marketing and Social Media Data.
 
 Contact Me :
+
 Phone : 082233464425
-mail : nagatha25@gmail.com
+
+Mail : nagatha25@gmail.com
+
 Linked In : https://www.linkedin.com/in/amelianagatha/
